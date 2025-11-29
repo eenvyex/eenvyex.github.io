@@ -1,3 +1,1 @@
-discord: eenvy.gg
-instagram: its_eenvy
-.  . .
+Discord: eenvy.gg
