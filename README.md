@@ -1,1 +1,1 @@
-Discord: eenvy.gg
+Discord: e.n.7
